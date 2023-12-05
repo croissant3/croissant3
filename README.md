@@ -1,3 +1,2 @@
 Hey look, free bread!
-Professional Dumbass
-Part of Team 614 Nighthawks.
+Professional Dumbass and a part of Team 614 Robotics.
